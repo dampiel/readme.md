@@ -2,4 +2,4 @@
 
 directorio educativo para mis cursos en el colegio
 
-https://maps.google.it/url?sa=i&rct=j&q=keyword&esrc=s&url=https%3A%2F%2Fhttps://ppq.cl//%2F
+<p>Creado por <a href="https://maps.google.com/url?q=https%3A%2F%2Fppq.cl"><strong>PPQ</strong></a> y potenciado por <strong><a href="https://maps.google.com/url?q=https%3A%2F%2Fseoanalytics.cl">SEO Analytics</a></strong></p>
